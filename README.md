@@ -2,7 +2,7 @@
 - 👀 I’m interested in js
 - 🌱 I’m currently learning ...js,html,css,a bit of python
 - 💞️ I’m looking to collaborate on bieng the best and best programmer.
-- 📫 How to reach me ...
+- 📫 How to reach me On Minecraft and bloxd.io , miniblox, robolx
 - 😄 Pronouns: ...
 - ⚡ Fun fact: fun fact im 11 years old!
 
